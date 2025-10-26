@@ -36,6 +36,6 @@
 ---
 
 ### 📦 **Arquivo do Jogo**
-➡️ *(Arquivo_TestForTutors.zip](https://github.com/user-attachments/files/23153796/Arquivo_TestForTutors.zip)*  
+➡️ *https://drive.google.com/file/d/1qeuuw5nzfq3blKRHY9HPLAAtaSl_m7j4/view?usp=sharing*  
 
 
